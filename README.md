@@ -56,7 +56,8 @@ The right kind of capital allocation would have more than compensated, when payi
 self-gratifying, costless to the giver, and ultimately practically amounted to mockery and harassment 
 of the person allegedly paid the "respects". Capital allocation was not just a number of paper monies. 
 It was the go-ahead for someone to be able to purchase a home, instead of remaining a financial dependent 
-or a renter. The American South had a problem during the 2020's. This problem cannot be described in 
+or a renter. It allowed them to seek out a significant other without the fret of furthering their financial 
+poverty. The American South had a problem during the 2020's. This problem cannot be described in 
 any concentration of words. Rather, it was just a problem. California also had problems due to its 
 capitalist and corporatist excesses. But California is besides the focus of this story. Californian 
 problems would deserve special stories about that special state. In fact, in the context of the 2020's in 
