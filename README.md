@@ -66,9 +66,9 @@ corporate thievery than the American South. California had more enterprise and m
 while the American South, due its rationale of modesty through de-emphasizing educational achievement, 
 maintaining neo-segregationist districting, and socialism in the form of breaking up possible businesses, 
 especially ones that would have been able to compete in the technology sector with California, can 
-admit to no such guilt as that of California. It can be argued that the legally recognized state of California 
-started as a Democratic Party offshoot, the Confederacy of the 1800's, to compensate for the losses of 
-abolishing slavery. Hispanic and Asian laborers came to fill the voids of labor, and aristocracy of 
+admit to no such guilt as that of California. It can be reasonably argued that the legally recognized state 
+of California started as a Democratic Party offshoot, the Confederacy of the 1800's, to compensate for the 
+losses of abolishing slavery. Hispanic and Asian laborers came to fill the voids of labor, and aristocracy of 
 primarily Anglo-Saxon descent became quite satisfied with finding a new nest to rule over. Of course, 
 the neoliberal reforms that started under the Clinton administration had made many Californians, without 
 a hint of Anglo-Saxon genealogy, fabulously wealthy, fabulously wealthy to the point where times of economic 
