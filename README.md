@@ -4,7 +4,7 @@
 A realistic account about respects in disrespectful times. 
 -----------------------------------------------------
 
-The year is 2026. Indeed, if they really actually respected, they would not even need to 
+The year was 2026. Indeed, if they really actually respected, they would not even need to 
 acknowledge. It's similar to the truth that if a person really had any money, they wouldn't 
 need to show it. This truth is more of a cultural preference than an actual, since there 
 have been plenty of fools killed specifically for little more than a typical government 
