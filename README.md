@@ -114,6 +114,16 @@ had ironically morphed from lesser brother of the British to thieving, morally l
 of the Anglo-Saxon somewhat against the Anglo-Saxon identity. It is mind-boggling. Absolutely appalling, in sarcastic 
 speak. 
 
+The Southern family offers morsels of meaningful opportunity, comfort food, and imaginary moralism. The Southern 
+family only appreciates art from dead artists and philosophy from high-ranking political agents, such as politicians. 
+The Southern family only respects teachers for the career opportunities up the corporatist ladder. The Southern family 
+fabricates wrongs to maintain its property rights. The Southern family wishes death and dishonor on those they try to 
+antagonize. The Southern family believes in humility and legacy so much than little blemishes can be made out to be 
+a source of great shame. The Southern family's language abhors the government, while instituting socialism to deal with 
+commercial competitors, and uses fear, shame, and guilt as agents in the name of freedom. Amplify these traits in the 
+American South up about tenfold, and there might as well be homicidal juntas. It's mainly a political alignment thing, 
+not a skin color or ethnicity thing. 
+
 The moral of respecting someone, "paying respects", is one that oftentimes becomes very awkward in practice. It's 
 about what the individual wants, the environment they wish to live in, the people they choose to interact with, 
 and the stimuli they choose to respond to. So it is not entirely about the money, the infrastructure, the legacy, 
