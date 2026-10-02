@@ -118,7 +118,7 @@ The Southern family offers comfort food, imaginary moralism, and morsels of mean
 family only appreciates art from dead artists and philosophy from high-ranking political agents, such as politicians. 
 The Southern family only respects teachers for the career opportunities up the corporatist ladder. The Southern family 
 fabricates wrongs to maintain its property rights. The Southern family wishes death and dishonor on those they try to 
-antagonize. The Southern family believes in humility and legacy so much than little blemishes can be made out to be 
+antagonize. The Southern family believes in humility and legacy so much that little blemishes can be made out to be 
 a source of great shame. The Southern family's language abhors the government, while instituting socialism to deal with 
 commercial competitors, and uses fear, shame, and guilt as agents in the name of freedom. Amplify these traits in the 
 American South up about tenfold, and there might as well be homicidal juntas. It's mainly a political alignment thing, 
