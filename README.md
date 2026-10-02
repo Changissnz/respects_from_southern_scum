@@ -93,7 +93,7 @@ most definitely added more sick comedy to the plights of the region than to re-i
 
 The Anglo-Saxon identity is a curious bunch. The Anglo-Saxon identity, if memory serves correct and if accountability 
 really rests with those peoples' original nation-state, Great Britain, was responsible for the famines that 
-occurred in Indian. It was also responsible for corruption in Burma, especially prominent during the 20th century, 
+occurred in India. It was also responsible for corruption in Burma, especially prominent during the 20th century, 
 and tempered down now due to the post-modernist movement. In equal credit, it was the French identity that 
 had caused the fruition of the nation-state of Haiti and the corrupt ideological degeneracy of Vietnam that became 
 known in full view of the Western commoner in the 20th century. And in the year 2026, there were Haitian gangsters 
