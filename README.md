@@ -14,7 +14,7 @@ of the person that is being respected. The fact that gossip, rumors, and leaks c
 the void where the respects were so apparently given, or paid for if that is a better choice 
 of words, seems to lead some to believe that something was not right. Something was wrong, 
 and it seemed like a combination of behaviorial guilt, sanctimonious pity, and major 
-misunderstandings that nevertheless have to be made out to be right. Without the belief in 
+misunderstandings that nevertheless had to be made out to be right. Without the belief in 
 righteousness, the courses of action would definitely have steered towards other forms of 
 behavior. 
 
