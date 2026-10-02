@@ -76,7 +76,7 @@ austerity mixed with mercenary mentalities could very well lead to lucrative rob
 
 The problem with the American South, in psychological terms, was one of shame and failure and dishonesty 
 about the shame and failure. For some reason, the topic of black slavery still dominates in discussions 
-about the deficits of the American South, despite that being outlawed for more than a century ago. Truthfully, 
+about the deficits of the American South, despite that being outlawed more than a century ago. Truthfully, 
 the American South had made active efforts to not engage in infrastructure projects at the same scale as 
 California and New England. This shows up in its lack of comparable public infrastructure. The American 
 South had continued to make aggressive efforts to remain as autonomous self-governing entities. Of course 
