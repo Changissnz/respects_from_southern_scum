@@ -21,7 +21,7 @@ behavior.
 The West had long suffered from the problem of idolatry. Same with the East. It is in human 
 nature to want to elevate someone but to remain entertained, ingratiated, fixed on the comfort and 
 righteousness of yielding way to them as a better, a model for the purpose of adding emphasis 
-on one pattern in many in the social fabric of a blanket. This idolatry has come to define 
+on one pattern of many in the social fabric of a blanket. This idolatry has come to define 
 areas of poverty as well as deindustrialized areas in the West. There seems to be nothing better 
 to do but to indulge in the media. As a clear example of the problem of Western idolatry, the 
 story of Jesus, a central figure in the Bible, is one with a big moral being the treachery and 
