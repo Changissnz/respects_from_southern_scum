@@ -28,7 +28,7 @@ story of Jesus, a central figure in the Bible, is one with a big moral being the
 tragedy resulting from idolatry. On top of this theme is that of issues of governance, that is, 
 the bastard conduct of the Roman and Jewish administrators pertinent to the story of Jesus. 
 
-The United States had a deep-seated problem during these years. It had dedicated a lot of its 
+The United States had a deep-seated problem during those years. It had dedicated a lot of its 
 executive and technological talent towards the way of Pontius Pilate's administration in Arabia. 
 The term "Middle East" is used, but it is probably not the most objective, since the Western 
 half of Russia could just as easily be recognized as the Middle East or perhaps Western Europe 
