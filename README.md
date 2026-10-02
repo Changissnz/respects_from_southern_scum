@@ -1,7 +1,7 @@
 # Respects From Southern Scum
 ## written by Richard Pham 
 
-A short story about respects in disrespectful times. 
+A realistic account about respects in disrespectful times. 
 -----------------------------------------------------
 
 The year is 2026. Indeed, if they really actually respected, they would not even need to 
