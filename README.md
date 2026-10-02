@@ -96,12 +96,12 @@ really rests with those peoples' original nation-state, Great Britain, was respo
 occurred in Indian. It was also responsible for corruption in Burma, especially prominent during the 20th century, 
 and tempered down now due to the post-modernist movement. In equal credit, it was the French identity that 
 had caused the fruition of the nation-state of Haiti and the corrupt ideological degeneracy of Vietnam that became 
-known in full view of the Western commoner in the 20th century. And now, there are Haitian gangsters that still roam many 
-areas of the United States. There are even lucky offspring from Vietnamese that escaped the clutches of that 
-country's ideological cesspit of "communists" to amass a fortune over in California, mostly in the form of real 
-estate than in any real political power for the United States. So it should be no surprise that mercenary blood 
-lives and can even thrive when given the financial incentives, along with political favors from those that wanted 
-to play the role of master, namely, the Anglo-Saxon identity. 
+known in full view of the Western commoner in the 20th century. And in the year 2026, there were Haitian gangsters 
+that still roamed many areas of the United States. There were even lucky offspring from Vietnamese that escaped the 
+clutches of that country's ideological cesspit of "communists" to amass a fortune over in California, mostly in the 
+form of real estate and bank swindling than in any real political power for the United States. So it should be no surprise 
+that mercenary blood lives and can even thrive when given the financial incentives, along with political favors from 
+those that wanted to play the role of master, namely, the Anglo-Saxon identity. 
 
 The Southern problem of the United States is one of depreciation, ridicule for those wanting to transcend their 
 decrepit conditions, and of insult to high-quality urbanism. In turn, these issues morph into opposition, many from 
