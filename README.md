@@ -114,7 +114,7 @@ had ironically morphed from lesser brother of the British to thieving, morally l
 of the Anglo-Saxon somewhat against the Anglo-Saxon identity. It is mind-boggling. Absolutely appalling, in sarcastic 
 speak. 
 
-The Southern family offers morsels of meaningful opportunity, comfort food, and imaginary moralism. The Southern 
+The Southern family offers comfort food, imaginary moralism, and morsels of meaningful opportunity. The Southern 
 family only appreciates art from dead artists and philosophy from high-ranking political agents, such as politicians. 
 The Southern family only respects teachers for the career opportunities up the corporatist ladder. The Southern family 
 fabricates wrongs to maintain its property rights. The Southern family wishes death and dishonor on those they try to 
