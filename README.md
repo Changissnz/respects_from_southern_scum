@@ -88,7 +88,7 @@ in some "southern" areas, the "southern" zone had been besieged and disintegrate
 that they had quite literally shot the sorriest guys immediately up the ranks of hierachy in the backs of 
 their heads. Yet, the idea of "southern" morality seemed to have been so fixed in the psyches of those defeated 
 peoples, as if the nearness to the equator somewhat served them a constant equilibrium of righteousness no matter 
-where their moral compass takes them. And the concept of the "aggrieved negro", in the American context, had 
+where their moral compass took them. And the concept of the "aggrieved negro", in the American context, had 
 most definitely added more sick comedy to the plights of the region than to re-ignite meaningful Reconstruction. 
 
 The Anglo-Saxon identity is a curious bunch. The Anglo-Saxon identity, if memory serves correct and if accountability 
