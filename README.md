@@ -107,10 +107,11 @@ decrepit conditions, and of insult to high-quality urbanism. In turn, these issu
 the so-called minorities, where Arabs and Hispanics make up a significant portion of these ranks of rebellion, with 
 hopes here and there to honor the image of Castro, Che Guevara, and the likes. Character assassination, political 
 smears, and disinformation had come to be one of the many forms of judgment without merit of judge nor payoff to the 
-judged. The issues with the American South cannot be simply blamed on the Anglo-Saxon identity. Whereas the British 
-had come to be known as corruptors and treacherous commercialists, the Irish identity had ironically morphed from 
-lesser brother of the British to thieving, morally loose, and rebellious alternatives of the Anglo-Saxon somewhat 
-against the Anglo-Saxon identity. It is mind-boggling. Absolutely appalling, in sarcastic speak. 
+judged, not entirely unique to the South. The issues with the American South cannot be simply blamed on the Anglo-Saxon 
+identity. Whereas the British had come to be known as corruptors and treacherous commercialists, the Irish identity 
+had ironically morphed from lesser brother of the British to thieving, morally loose, and rebellious alternatives 
+of the Anglo-Saxon somewhat against the Anglo-Saxon identity. It is mind-boggling. Absolutely appalling, in sarcastic 
+speak. 
 
 The moral of respecting someone, "paying respects", is one that oftentimes becomes very awkward in practice. It's 
 about what the individual wants, the environment they wish to live in, the people they choose to interact with, 
