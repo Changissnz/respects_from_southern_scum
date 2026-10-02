@@ -62,7 +62,7 @@ any concentration of words. Rather, it was just a problem. California also had p
 capitalist and corporatist excesses. But California is besides the focus of this story. Californian 
 problems would deserve special stories about that special state. In fact, in the context of the 2020's in 
 America, California would probably be much more guilty of financial crimes, half-forced labor, and 
-corporate thievery than the American South. California has more enterprise and more faults with that, 
+corporate thievery than the American South. California had more enterprise and more faults with that, 
 while the American South, due its rationale of modesty through de-emphasizing educational achievement, 
 maintaining neo-segregationist districting, and socialism in the form of breaking up possible businesses, 
 especially ones that would have been able to compete in the technology sector with California, can 
